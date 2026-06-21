@@ -144,8 +144,9 @@ I continuously practice:
 
 # 📫 Connect With Me
 
-LinkedIn:
-your-linkedin-url
+LinkedIn:Sanjana Musham
+www.linkedin.com/in/sanjana-musham333
+
 
 Email:
 your-email
