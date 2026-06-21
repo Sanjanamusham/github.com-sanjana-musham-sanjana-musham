@@ -144,12 +144,10 @@ I continuously practice:
 
 # 📫 Connect With Me
 
-LinkedIn:Sanjana Musham
-www.linkedin.com/in/sanjana-musham333
+LinkedIn: www.linkedin.com/in/sanjana-musham333
 
 
-Email:
-your-email
+Email: sanjanamusham0103@gmail.com
 
 
 ---
